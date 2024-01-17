@@ -1,1 +1,1 @@
-![image](https://github.com/CarlSaganPhD/3D-lattice-viz/assets/81494065/017b0875-ea21-42d7-a48a-4cdd57dfd394)
+![image 9 (1)](https://github.com/CarlSaganPhD/3D-lattice-viz/assets/81494065/3b9d22bd-ddca-4e45-8756-4eb644b32e43)
